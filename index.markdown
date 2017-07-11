@@ -11,6 +11,6 @@ BS Computer Science
 &
  Minor in INLS (?)
 ### Check out my Soundcloud!
-[dj seogood](http://www.soundcloud.com/dj-seogood
+[dj seogood](http://www.soundcloud.com/dj-seogood)
 
 
