@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Material Jekyll Theme
+title: Andy Seo / djseogud
 ---
 Welcome to my personal blog. It's barely functional but I will toil and make it mine.
 
