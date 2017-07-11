@@ -4,3 +4,4 @@ title: About me
 permalink: /about/
 ---
 Hey interwebs my name is Andy and I'm a student at UNC - Chapel Hill. I'm studying computer science and have spent most of my time programming at UNC in Java. Hoping to learn more languages and get more experience in the coming years especially on web and software/applications development.  
+![Alt text](C:\Users\andy\Pictures\andy.jpg)
