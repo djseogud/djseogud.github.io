@@ -10,6 +10,7 @@ Welcome to my personal blog. It's barely functional as of now but I will toil an
 BS Computer Science
 &
  Minor in INLS (?)
-
+### Check out my Soundcloud!
+[dj seogood](http://www.soundcloud.com/dj-seogood
 
 
