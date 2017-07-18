@@ -28,6 +28,8 @@ Do my words no longer hold weight?
 Is this what they call fate?
 
 
+
+
 Not all who wander are lost
   
 Not one effect without a cause
@@ -37,6 +39,8 @@ Even if the cost was nothing at all
 We'd give it all we've got
 
   
+
+
 One day the pieces all fall into place,
   
 Fit, as do the stars in space
