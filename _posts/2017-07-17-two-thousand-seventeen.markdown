@@ -19,21 +19,30 @@ You are ever still
 
 #Plan ahea
 
-  I seem to have lost my way  
-  Have I been led astray?  
-  Do my words no longer hold weight?
-  Is this what they call fate?
+I seem to have lost my way  
+  
+Have I been led astray?  
+
+Do my words no longer hold weight?
+
+Is this what they call fate?
 
 
-  Not all who wander are lost
-  Not one effect without a cause
-  Even if the cost was nothing at all
-  We'd give it all we've got
+Not all who wander are lost
+  
+Not one effect without a cause
+
+Even if the cost was nothing at all
+
+We'd give it all we've got
 
   
-  One day the pieces all fall into place,
-  Fit, as do the stars in space
-  Constellations of a future near and bright
-  Shine in the moonlight
+One day the pieces all fall into place,
+  
+Fit, as do the stars in space
+  
+Constellations of a future near and bright
+  
+Shine in the moonlight
 
 ![Night](http://www.fullredneck.com/wp-content/uploads/2016/04/Best-Country-Songs-About-Stars-in-the-Sky-768x432.png)
