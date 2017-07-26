@@ -1,13 +1,13 @@
 ---
 layout: post
-title:  "A few poems"
+title:  "A Few Poems"
 date:   2017-07-17 18:52:21
 categories: Blog
 ---
 
 Here are two poems I wrote a *very long time ago*...
 
-Motion 
+**Motion 
 
 
 The tides rise and fall
@@ -18,7 +18,7 @@ You are ever still
 
 ![Together](http://www.learnnc.org/lp/media/collections/freeman/bali/1024/bali_009.jpg)
 
-Plan ahea
+**Plan ahea
 
 
 I seem to have lost my way  
